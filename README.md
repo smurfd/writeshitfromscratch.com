@@ -1,0 +1,2 @@
+# writeshitfromscratch.com
+company idea
